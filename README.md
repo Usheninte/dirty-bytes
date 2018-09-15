@@ -66,3 +66,24 @@ to stll be reading this far
 
 - - -
 
+## fin
+
+I must hold  
+my numb heart back  
+or I will stress  
+beyond need  
+this digital paper  
+
+I can do without you  
+it would nice if you could  
+reach out after reading this  
+I only need me to be happy  
+but the flame of my soul  
+needs another mind  
+to help it grow  
+
+- - -
+
+#<3 Ninte &copy; 2018-09
+
+
