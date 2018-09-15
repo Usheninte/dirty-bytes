@@ -84,6 +84,6 @@ to help it grow
 
 - - -
 
-#<3 Ninte &copy; 2018-09
+# <3 Ninte &copy; 2018-09
 
 
