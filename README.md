@@ -16,3 +16,17 @@ to catch a glimpse
 of my heart
 
 - - -
+
+## electro
+
+i pray in hymns  
+to digital gods  
+we are all unbelievers  
+we all worship the internet  
+
+the only question is  
+do you pray in kilo  
+or in petabytes
+
+- - -
+
